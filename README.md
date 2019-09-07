@@ -7,3 +7,5 @@
 who knows, who care about your pass.
 
 为了成为更好的自己，我们都在向过去告别吧。
+
+未来可期，加油。
